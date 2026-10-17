@@ -1,1 +1,0 @@
-# szamangn.github.io
